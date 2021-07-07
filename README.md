@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @doggepogge
+- 👀 I’m interested in pog dogs
+- 🌱 I’m currently learning about angles
+- 💞️ I’m looking to collaborate on code
+- 📫 How to reach me: [Email](lees83596@gmail.com)
